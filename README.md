@@ -1,0 +1,1 @@
+# inventar_tizimi
